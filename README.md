@@ -1,2 +1,2 @@
-# logo
-LordLike DAO LOGO
+# LordLike DAO logo
+
