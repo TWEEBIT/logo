@@ -1,2 +1,0 @@
-# LordLike DAO LOGO
-
