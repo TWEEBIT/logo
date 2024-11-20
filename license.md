@@ -1,5 +1,5 @@
-# LordLike DAO LOGO
-LordLike DAO LOGO © 2024 by Daryna Barabanova is licensed under Attribution-NonCommercial-NoDerivatives 4.0 International 
+# TWEEBIT LOGO
+TWEEBIT LOGO © 2024 by Daryna Barabanova is licensed under Attribution-NonCommercial-NoDerivatives 4.0 International 
 
 CC BY-NC-ND 4.0
 Attribution-NonCommercial-NoDerivatives 4.0 International
